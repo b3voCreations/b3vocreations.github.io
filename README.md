@@ -2,5 +2,5 @@
 
 **Thanks for stopping by!**
 
-You can see our Privacy Policy here:
+You can view our Privacy Policy here:
 
